@@ -14,7 +14,7 @@
 - **2 tablespoons** all-purpose flour (optional, for thickening)
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
-
+- **Sour cream**
 
 ## Instructions
 
